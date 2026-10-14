@@ -1,2 +1,2 @@
 # Pakizastylishbarbershop
-Barbershop to trust in whtby Ontario 
+Barbershop to trust in Whitby Ontario 
