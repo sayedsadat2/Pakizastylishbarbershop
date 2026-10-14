@@ -1,2 +1,2 @@
 # Pakizastylishbarbershop
-Barbershop to trust in withby Ontario 
+Barbershop to trust in whtby Ontario 
